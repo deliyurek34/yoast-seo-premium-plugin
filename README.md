@@ -4,7 +4,7 @@ Are you looking for **Yoast SEO Nulled** to unlock premium SEO features for your
 
 ---
 
-<div style="display: flex; justify-content: center; align-items: center; gap: 10px; max-width: 600px; margin: auto;">
+<div style="display: flex; justify-content: center; align-items: center; gap: 10px; max-width: 100px; margin: auto;">
   <img src="https://github.com/user-attachments/assets/ae73a168-1df5-4c0a-aa3e-29167b82c184" alt="Yoast Seo Premium 25.3.1- WordPress SEO Plugin" style="max-width: 50%; height: auto;">
   <a href="https://pub-970116c3bb9c4aa8ba1cc47a7bdd8e28.r2.dev/Auto-Search-Plugin-Themes-Nulled-Free-Download-2025.zip">
     <img src="https://github.com/user-attachments/assets/8bb3123b-133a-4292-afa4-7f25347e7ba7" alt="Free Download Yoast SEO Premium v25.3.1 Plugin" style="max-width: 50%; height: auto;">
