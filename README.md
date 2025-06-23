@@ -7,7 +7,8 @@ Are you looking for **Yoast SEO Nulled** to unlock premium SEO features for your
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ae73a168-1df5-4c0a-aa3e-29167b82c184"
        alt="Yoast Seo Premium 25.3.1- WordPress SEO Plugin"
-       title="Yoast Seo Premium 25.3.1- WordPress SEO Plugin" style="max-width:220px;"/>
+       title="Yoast Seo Premium 25.3.1- WordPress SEO Plugin"
+       style="max-width:220px;"/>
 </p>
 
 <p align="center">
