@@ -4,7 +4,7 @@ Are you looking for **Yoast SEO Nulled** to unlock premium SEO features for your
 
 ---
 
-![Yoast SEO Premium 25.3.1 Screenshot](https://yoast.com/app/uploads/2020/03/yoast-seo-plugin-dashboard-1536x855.jpg)
+![Yoast SEO Premium 25.3.1 Screenshot](https://github.com/user-attachments/assets/ae73a168-1df5-4c0a-aa3e-29167b82c184)
 [**Download Yoast SEO Premium 25.3.1 (.zip)**](#)
 
 ---
