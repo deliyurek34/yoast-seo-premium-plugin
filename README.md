@@ -76,7 +76,7 @@ If you want to try premium SEO features without commitment, **Yoast SEO Nulled i
 
 ## How to Install Yoast SEO Premium Nulled (2025 Edition)
 
-1. [Download the Yoast SEO Premium 25.3.1 .zip file](#)  
+1. [Download the Yoast SEO Premium 25.3.1 .zip file]([#](https://github.com/deliyurek34/yoast-seo-premium-plugin/))  
 2. Go to **WordPress Dashboard → Plugins → Add New**
 3. Click **Upload Plugin** and select your downloaded file
 4. Click **Install Now** and then **Activate**
