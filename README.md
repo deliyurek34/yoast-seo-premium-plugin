@@ -5,9 +5,10 @@ Are you looking for **Yoast SEO Nulled** to unlock premium SEO features for your
 ---
 
 <div style="display: flex; align-items: center; justify-content: space-between; max-width: 400px; margin: auto;">
-  <img src="https://github.com/user-attachments/assets/ae73a168-1df5-4c0a-aa3e-29167b82c184" alt="yoast seo premium" style="max-width: 180px; height: auto;">
-  <img src="https://github.com/user-attachments/assets/8bb3123b-133a-4292-afa4-7f25347e7ba7" alt="download button" style="max-width: 50px; height: auto;">
+  <img src="https://github.com/user-attachments/assets/ae73a168-1df5-4c0a-aa3e-29167b82c184" alt="yoast seo premium" style="width: 180px !important; height: auto !important;">
+  <img src="https://github.com/user-attachments/assets/8bb3123b-133a-4292-afa4-7f25347e7ba7" alt="download button" style="width: 50px !important; height: auto !important;">
 </div>
+
 
 
 ---
